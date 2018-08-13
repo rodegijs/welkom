@@ -1,2 +1,2 @@
 # welkom
-In de maand mei leggen de vogels hun ei
+En daarna vallen ze dood neer
