@@ -1,3 +1,3 @@
 # welkom
-En daarna vallen ze dood neer
+En daarna vliegen ze uit
 
